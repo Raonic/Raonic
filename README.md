@@ -10,4 +10,4 @@
 - 📫 How to reach me: just look around.
 - 😄 Pronouns: no.
 - ⚡ Fun fact: I'm failing this grade. again.
---> :/
+- :/
